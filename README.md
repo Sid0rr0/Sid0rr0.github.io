@@ -6,4 +6,4 @@ If you want to buy me something, you can check out my [wishlist](https://elhungu
 
 I'm open to your ideas for this website.
 
-Go back to [HungStuff.online](www.hungstuff.online)
+Go back to [HungStuff.online](https://www.hungstuff.online)
